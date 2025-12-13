@@ -1,1 +1,1 @@
-i put weird things and copyrighted apps
+Restarting from scratch again
